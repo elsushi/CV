@@ -36,6 +36,7 @@ Makers Academy is a highly selective, 12 week full-time program that teaches web
 
 ###Hult International Business School: 2012 - 2013
 Master in Business Administration
+-I worked on a 6-week innovation and growth project for EMC corporation in China.
 
 ##My past and what I like
 - I have previous experience in team management, finance, banking, international trade and operations.
