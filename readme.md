@@ -40,7 +40,7 @@ Master in Business Administration, worked on a 6-week innovation and growth proj
 ##My past and what I like
 - I have previous experience in team management, finance, banking, international trade and operations.
 - I love music, especially live.
-- I like running and riding my bikes.
+- I like running and riding my bike.
 - I also enjoy talking about new business ideas.
 
 
